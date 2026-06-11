@@ -1,5 +1,5 @@
 # Hi 👋, I'm Furkan Yaman  
-### Cyber Security Analyst(for now) 
+### Cyber Security Analyst 
 
 ### Connect with me
 <p>
